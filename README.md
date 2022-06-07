@@ -1,1 +1,1 @@
-# rsschool-cv
+https://wastelandeer.github.io/rsschool-cv/cv
